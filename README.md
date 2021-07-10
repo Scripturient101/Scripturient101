@@ -1,7 +1,7 @@
 ![](https://64.media.tumblr.com/32f099ffcc2a1db9030b0dff18cdba28/tumblr_pim2obaKkN1whc70jo3_1280.gifv)
 
 ### Hi Folks 👋
-
+You can find me on [Linkedin](https://in.linkedin.com/in/shruti-chauhan-1b6b37169?trk=people-guest_people_search-card) 
 <!--
 **Scripturient101/Scripturient101** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
